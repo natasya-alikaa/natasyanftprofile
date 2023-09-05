@@ -1,4 +1,4 @@
-# natasyanftprofiles
+# natasyanftprofile
 - 0xnatasya (1).jpg
 - 0xnatasya (2).jpg
 - 0xnatasya (3).jpg
