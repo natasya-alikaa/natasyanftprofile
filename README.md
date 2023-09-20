@@ -1,4 +1,4 @@
-# natasya nft profile
+# natasya nft profiles
 - 0xnatasya (1).jpg
 - 0xnatasya (2).jpg
 - 0xnatasya (3).jpg
